@@ -1,6 +1,6 @@
 <div align="center">
   
- **loveㅤmeㅤforever**
+ **loversㅤㅤtogether**
   
 <img src="https://file.garden/aeWblX8drAn4J6VK/bn2.gif" width="390">
   
@@ -8,4 +8,4 @@
 
 **𓎢𓎠𓎟𓎠𓎡**
 
-**NOTE** ㅤ⊹ . **if you** were on our DNI list and we followed you — It doesn't mean we want YOU to interact or be friends with us, keep that to yourself, okay? 
+**ⁿᵒᵗᵉ**ㅤ⊹ . **if you** were on our DNI list and we followed you — It doesn't mean we want YOU to interact or be friends with us, keep that to yourself, okay? 
